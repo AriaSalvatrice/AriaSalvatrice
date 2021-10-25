@@ -1,11 +1,14 @@
-It's sad. PG gulled you into the hustle. Throwing your life away at the app lottery. Now you try to be hired by making side-projects, at the bottom of which you write "Made with ❤️ in a metropolis where public defecation is commonplace because writing javascripts doesn't solve the lack of public toilets in my city".
+Welcome to my Github profile page uwu ![](https://i.imgur.com/K313hrO.gif)
 
-Github gave me a README template with a "pronouns" field for my public profile - as if inclusion by CoC of the trans community were sincere, rather than a charade that immediately breaks down when you meet the real thing, and the real thing isn't a polite bourgeois into status games.
+\____________________
 
-The crowd here makes me sick. Talk to me with the mask off or get out of my face.
+**Please use the Search function before posting new Free Software!**
 
-Also, reminder Github sells software to the U.S. Immigration and Customs Enforcement, which treats immigrants like subhumans. 
+~ _There are 10 kinds of people in the world, those who understand the non-binary and those who get banned from my forum_ ~
 
-_____________
+![Signature](https://i.imgur.com/Jl2qbvE.png)
 
-![Signature](https://i.imgur.com/wGh76h8.png)
+
+--------------------
+
+![E-mail](https://i.imgur.com/Rp6nK2G.gif) ![FREEWARE GUIDE](https://i.imgur.com/BFFE338.gif) ![Trans rights!](https://i.imgur.com/DUII7yS.gif) ![MT-32 Now!](https://i.imgur.com/80oztDW.gif) ![Black lives matter](https://i.imgur.com/QrAYfuZ.gif) ![Best viewed with any OS, any browser!](https://i.imgur.com/b8ZUEHD.gif) ![Valid HTML 4.01](https://i.imgur.com/Sp0MzBp.png)
