@@ -1,7 +1,5 @@
 Welcome to my Github page uwu ![](https://i.imgur.com/K313hrO.gif)
 
-Be sure to sign my [Guestbook](https://github.com/AriaSalvatrice/AriaSalvatrice/issues/6) :3
-
 \_********\_\_\_********
 
 **Please use the Search function before posting new Free Software!**
