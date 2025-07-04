@@ -1,3 +1,5 @@
+# MY PUBLIC CODE ONLY GOES TO MY [GIT.GAY](https://git.gay/AriaSalvatrice/) REPOSITORIES INSTEAD OF GITHUB.
+
 Welcome to my Github page uwu ![](https://i.imgur.com/K313hrO.gif)
 
 \_********\_\_\_********
